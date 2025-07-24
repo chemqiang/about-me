@@ -1,6 +1,7 @@
 - Hi, I’m @chemqiang
 -a student in NJTECH University
 -  How to reach me violetevergarden33@163.com
+-  or QQ:2065224944
 
 
 
